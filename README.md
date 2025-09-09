@@ -1,1 +1,0 @@
-# swot-northsea-thesis
